@@ -1,4 +1,4 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=squidswagyuri&label=Stalker%20Count&color=571609&style=flat" alt="squidswagyuri" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=squidswagyuri&label=Tangolings&color=571609&style=flat" alt="squidswagyuri" /> </p>
 
 ![harcos41823-tangotek](https://github.com/user-attachments/assets/9cfddc39-8651-4fd3-a6b8-19d7dc8384fd)
 
