@@ -1,4 +1,4 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=squidswagyuri&label=Tangolings&color=571609&style=flat" alt="squidswagyuri" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=squidswagyuri&label=4Clings&color=4b8188&style=flat" alt="squidswagyuri" /> </p>
 
 
 
