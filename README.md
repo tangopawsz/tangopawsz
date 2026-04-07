@@ -5,3 +5,6 @@
 
 
 ![SADDD4C](https://github.com/user-attachments/assets/2081026e-54e3-4aa7-9fc3-c8fe0e376cac)
+                                       ⋆˚࿔ 15                                
+                  ⋆˚࿔ ᴄ+ʜ ᴀʟᴡᴀʏꜱ ᴇɴᴄᴏᴜʀᴀɢᴇᴅ ᴜɴʟᴇꜱꜱ ɴᴀᴍᴇ ꜱᴀʏꜱ ᴏᴛʜᴇʀᴡɪꜱᴇ
+                                ⋆˚࿔ ꜱᴏᴄɪᴀʟʟʏ ᴀᴡᴋᴡᴀʀᴅ
