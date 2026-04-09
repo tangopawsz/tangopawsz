@@ -1,4 +1,4 @@
-                             " ᴀɴᴅ ɪ ʜᴀᴛᴇ ᴛᴏ ᴅᴏ ᴛʜɪꜱ ᴛᴏ ʏᴏᴜ ᴏɴ ʏᴏᴜʀ ʙɪʀᴛʜᴅᴀʏ "
+                       " ᴀɴᴅ ɪ ʜᴀᴛᴇ ᴛᴏ ᴅᴏ ᴛʜɪꜱ ᴛᴏ ʏᴏᴜ ᴏɴ ʏᴏᴜʀ ʙɪʀᴛʜᴅᴀʏ "
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=squidswagyuri&label=VISITORS&color=36828c&style=flat" alt="squidswagyuri" /> </p>
 
 
