@@ -5,5 +5,6 @@
 <p align="center"> ʙᴀꜱɪᴄ ᴅɴɪ
 <p align="center"> #1 ​🇸​​🇹​​🇪​​🇻​​🇪​​🇳​ ​🇺​​🇳​​🇮​​🇻​​🇪​​🇷​​🇸​​🇪​ ​🇫​​🇦​​🇳​
 
+
 <img width="200" height="168" alt="peridot-lapidot" src="https://github.com/user-attachments/assets/0a59d66a-27f1-4d65-a9f6-e59fe0b99da3" />
 
