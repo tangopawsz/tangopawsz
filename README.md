@@ -4,3 +4,5 @@
 
 <p align="center"> ʙᴀꜱɪᴄ ᴅɴɪ
 <p align="center"> #1 ​🇸​​🇹​​🇪​​🇻​​🇪​​🇳​ ​🇺​​🇳​​🇮​​🇻​​🇪​​🇷​​🇸​​🇪​ ​🇫​​🇦​​🇳​
+
+<p align="center"> https://tenor.com/view/peridot-lapidot-lapis-lazuli-steven-universe-gif-15100967
