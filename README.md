@@ -7,8 +7,6 @@
 $$ \color{#670e09}{\text{" With great power, "}} $$
 
 $$ \color{#902213}{\text{" comes great responsibility "}} $$
-
-
 <p align="center"> <img width="1000" height="1000" alt="spiderman3" src="https://github.com/user-attachments/assets/bdff24bf-8c6b-42b9-8fde-0eccc82d634d" />
 
 
