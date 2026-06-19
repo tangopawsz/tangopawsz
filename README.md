@@ -1,4 +1,3 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=tangopawsz&label=MUDDY%20CLODS&color=225b00&style=flat" alt="tangopawsz" /> </p>
 
 $$ \color{#738b1b}{\text{pronouns change depending on pony}} $$
 
