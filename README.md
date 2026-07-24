@@ -1,13 +1,12 @@
-<p align="center"> <img width="1500" height="500" alt="spiderheader1" src="https://github.com/user-attachments/assets/f62a2e9c-78f3-404e-9054-86b9b5207804" />
 
 
 
 
   
-$$ \color{#670e09}{\text{" With great power, "}} $$
+$$ \color{#670e09}{\text{" temp "}} $$
 
-$$ \color{#902213}{\text{" comes great responsibility "}} $$
-<p align="center"> <img width="1000" height="1000" alt="spiderman3" src="https://github.com/user-attachments/assets/bdff24bf-8c6b-42b9-8fde-0eccc82d634d" />
+$$ \color{#902213}{\text{" temp "}} $$
+<p align="center"> <img width="1000" height="1000" alt="tangobluegithubbanner" src="https://github.com/user-attachments/assets/8c358f45-0f6e-48e6-bde0-a7f4c2aaeab5" />
 
 
 
