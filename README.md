@@ -20,8 +20,6 @@ $$ \color{#19283b}{\text{16 , iwc}} $$
 $$ \color{#162130}{\text{gift me tangotek ponies :33}} $$
 
 <p align="center"><img width="640" height="640" alt="FIRE1BLUEEEEEEEEEEEEEE" src="https://github.com/user-attachments/assets/9f03fd13-979a-44ff-a672-aece9982b6e4" />
-
-
 <p align="center"><img width="640" height="640" alt="fgartgithubbanner" src="https://github.com/user-attachments/assets/30156f4c-f480-445c-a17b-d8e22a31be71" />
 
 
