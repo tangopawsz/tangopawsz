@@ -1,7 +1,7 @@
 
-$$ \color{#9d23fa}{\text{" gift me tangotek ponies "}} $$
+$$ \color{#9d23fa}{\text{ gift me tangotek ponies }} $$
 
-$$ \color{#6e21a9}{\text{" always iwc "}} $$
+$$ \color{#6e21a9}{\text{ always iwc }} $$
   
 $$ \color{#4d0c84}{\text{" It's such a cruel joke that they made you
 A star "}} $$
