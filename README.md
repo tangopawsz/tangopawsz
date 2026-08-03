@@ -6,7 +6,7 @@ $$ \color{#560609}{\text{ OBEDIENCE }} $$ $$ \color{#69060a}{\text{ IS }} $$ $$ 
 
 
 
-$${\color{#560609}Color \space your \space \color{green}.md \space file \space \color{blue}in \space Github}$$
+$${\color{#560609}OBEDIENCE \space \color{#69060a}IS \space \color{#7b0005}FREEDOM }$$
 
 
 
