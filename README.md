@@ -2,7 +2,7 @@ $${\color{#b10a11}OB \color{#96040a}E \color{#7b0005}DI \color{#69060a}EN \color
 
 
 
-<p align="center"><img width="1503" height="2218" alt="adadadadapollo" src="https://github.com/user-attachments/assets/af2917ef-0497-4e56-a0c3-e7daa6ecc1c4" />
+<p align="center"><img width="1500" height="500" alt="redstatic" src="https://github.com/user-attachments/assets/15c60804-626c-4da5-86e1-6dd0ec89f4f9" />
 
 
 
