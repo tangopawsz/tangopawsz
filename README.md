@@ -1,15 +1,15 @@
-$${\color{#b10a11}OB \color{#96040a}E \color{#7b0005}DI \color{#69060a}EN \color{#610609}CE \space \color{#560609}IS \space \color{#430406}FR \color{#360406}E \color{#2b0304}ED \color{#260303}OM }$$
+$${\color{#41d2e5}DR \color{#23bada}Y \space \color{#1a9cc7}YO \color{#107bae}UR \space \color{#0e5e9c}EY \color{#0e4e91}ES  }$$
 
-<p align="center"><img width="2360" height="1640" alt="redapollogithubbanner" src="https://github.com/user-attachments/assets/4d4b8652-2e81-47f5-a574-fba6656a612e" />
-
-
-<p align="center"><img width="1500" height="500" alt="redstatic" src="https://github.com/user-attachments/assets/15c60804-626c-4da5-86e1-6dd0ec89f4f9" />
+<p align="center"><img width="500" height="500" alt="ajagithubbanner" src="https://github.com/user-attachments/assets/7119ec3f-fd70-44c6-a4df-8b0e21076b5d" />
 
 
 
 
+$${\color{#41d2e5}I \space \color{#23bada}WON'T \space \color{#1a9cc7}TELL \space \color{#107bae}YOUR \space \color{#0e5e9c}MOT \color{#0e4e91}HER }$$
 
+$${\color{#41d2e5}SHE \space \color{#23bada}WON'T \space \color{#23bada}EV \color{#1a9cc7}ER \space \color{#107bae}DISC \color{#0e5e9c}OVER }$$
 
+$${\color{#41d2e5}THE \space \color{#41d2e5}THINGS \space \color{#41d2e5}YOU \space \color{#23bada}KEPT \space \color{#1a9cc7}UNDER \space \color{#107bae}THE \space \color{#0e5e9c}CO \color{#0e4e91}VERS }$$
 
 
 
