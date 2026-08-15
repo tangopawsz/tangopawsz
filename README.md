@@ -26,6 +26,7 @@ $$ \color{#1a9cc7}{\text{Serapter - whitepine}} $$
 $$ \color{#107bae}{\text{fictkins}} $$
 
 $$ \color{#0e4e91}{\text{Tangotek - character not cc}} $$
+$$ \color{#0e4e91}{\text{Pidge - Voltron}} $$
 $$ \color{#0e4e91}{\text{Aja - 3below}} $$
 $$ \color{#0e4e91}{\text{Peridot - SU}} $$
 
