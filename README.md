@@ -1,7 +1,12 @@
-$${\color{#41d2e5}DR \color{#23bada}Y \space \color{#1a9cc7}YO \color{#107bae}UR \space \color{#0e5e9c}EY \color{#0e4e91}ES  }$$
 
 
-$${\color{#41d2e5}I \space \color{#23bada}WON'T \space \color{#1a9cc7}TELL \space \color{#107bae}YOUR \space \color{#0e5e9c}MOT \color{#0e4e91}HER }$$
+$${\color{#41d2e5}Your \space \color{#23bada}a \space \color{#1a9cc7}big \space \color{#107bae}girl \space \color{#0e5e9c}now }$$
+
+
+
+$${\color{#41d2e5}No \space \color{#23bada}more \space \color{#1a9cc7}daddys \space \color{#107bae}little \space \color{#0e5e9c}girl }$$
+
+
 
 
 <p align="center"><img width="500" height="500" alt="ajagithubbanner" src="https://github.com/user-attachments/assets/7119ec3f-fd70-44c6-a4df-8b0e21076b5d" />
@@ -9,24 +14,6 @@ $${\color{#41d2e5}I \space \color{#23bada}WON'T \space \color{#1a9cc7}TELL \spac
 
 
 
-$${\color{#41d2e5}SHE \space \color{#23bada}WON'T \space \color{#23bada}EV \color{#1a9cc7}ER \space \color{#107bae}DISC \color{#0e5e9c}OVER }$$
 
 
-$${\color{#41d2e5}THE \space \color{#41d2e5}THINGS \space \color{#41d2e5}YOU \space \color{#23bada}KEPT \space \color{#1a9cc7}UNDER \space \color{#107bae}THE \space \color{#0e5e9c}CO \color{#0e4e91}VERS }$$
-
-$$ \color{#41d2e5}{\text{kins}} $$
-
-$$ \color{#1a9cc7}{\text{Rayla - TDP}} $$
-$$ \color{#1a9cc7}{\text{Peter Parker - Tom Holland ver}} $$
-$$ \color{#1a9cc7}{\text{ApolloTV - Desert Civ Apollo }} $$
-$$ \color{#1a9cc7}{\text{Nico Di Angelo - PJO}} $$
-$$ \color{#1a9cc7}{\text{Grian - character not cc}} $$
-$$ \color{#1a9cc7}{\text{Serapter - whitepine}} $$
-
-$$ \color{#107bae}{\text{fictkins}} $$
-
-$$ \color{#0e4e91}{\text{Tangotek - character not cc}} $$
-$$ \color{#0e4e91}{\text{Pidge - Voltron}} $$
-$$ \color{#0e4e91}{\text{Aja - 3below}} $$
-$$ \color{#0e4e91}{\text{Peridot - SU}} $$
 
