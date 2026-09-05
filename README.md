@@ -1,3 +1,5 @@
+<p align="center"><img width="363" height="26" alt="ajaWIB" src="https://github.com/user-attachments/assets/fa22ccae-48f2-492b-8351-6a14c64d9636" />
+
 
 
 $${\color{#41d2e5}Your \space \color{#23bada}a \space \color{#1a9cc7}big \space \color{#107bae}girl \space \color{#0e5e9c}now }$$
